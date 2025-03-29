@@ -1,3 +1,1 @@
-# assignment
-
 RENALDO ARAPI
